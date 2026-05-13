@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with ultimate hypershot Script, the #1 Script. Includes aimbot and private server access for unbeatable
 
 
 
